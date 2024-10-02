@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+### I'm Anudeep. Based in DFW Metroplex, USA 📍
+View my pinned projects 👇
